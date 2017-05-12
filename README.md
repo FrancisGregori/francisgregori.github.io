@@ -1,1 +1,0 @@
-# francisgregori.github.io
